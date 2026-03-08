@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Startup ideas
 - 📫 How to reach me, best is linkedin, but you can also message anywhere
 - 😄 Pronouns: He/Him/His
-- ⚡ Fun fact: I'm an open nature person who loves chasing new cultures, exploring cities, the countryside, skiing down mountains, speaking new languages, and outsmarting opponents on the chessboard—learning something new every step of the way!
+- ⚡ Fun fact: I'm an open nature person who loves chasing new cultures, exploring cities, the countryside, skiing down mountains, speaking new languages, and outsmarting opponents on the chessboard, learning something new every step of the way!
 
 <!---
 MarkusCloudHub/MarkusCloudHub is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
